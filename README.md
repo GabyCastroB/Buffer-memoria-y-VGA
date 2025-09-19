@@ -3,7 +3,7 @@
 ## Nombres de integrantes
 
 ### Diddier Alexander Hilarion Beltran
-### Gabriela María Castro Beltrán
+### Gabri~~~~ela María Castro Beltrán
 ### Daniel Pineda
 
 ## Resumen
